@@ -12,3 +12,6 @@ Quidco: George - £10 each - [https://www.quidco.com/raf/8097081](https://www.qu
 Octopus: George - £50 each - [https://share.octopus.energy/loved-brook-994](https://share.octopus.energy/loved-brook-994) (1 referral so far)
 Octopus: Ben - £50 each - [https://share.octopus.energy/green-panda-154](https://share.octopus.energy/green-panda-154) (3 referrals so far)
 
+### Competitions/Lottery
+
+Pick My Postcode (a FREE postcode lottery): George [https://pickmypostcode.com](https://pickmypostcode.com/?ref=300930)
