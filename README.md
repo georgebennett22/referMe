@@ -24,4 +24,4 @@
 
 ### Shopping 
 
-* Sport Pursuit: Discount sportswear and goods - George - When you sign up they plant 2 trees, when you first order, they'll plant another 2 trees [https://www.sportpursuit.com/join/8CF6114CA7A39B](https://www.sportpursuit.com/join/8CF6114CA7A39B)
+* Sport Pursuit: Discount sportswear and goods - George - When you sign up they plant 2 trees, when you first order, they plant another 2 trees [https://www.sportpursuit.com/join/8CF6114CA7A39B](https://sportpursuit.com/join/8CF6114CA7A39B)
