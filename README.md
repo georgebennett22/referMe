@@ -16,6 +16,8 @@
 ### Competitions/Lottery
 
 * Pick My Postcode (a FREE postcode lottery): George [https://pickmypostcode.com](https://pickmypostcode.com/?ref=300930)
+* Laravel Holiday Giveaway: Michael [https://laravelgiveaway.com](http://bit.ly/33G8Ojy)
+* Win Airpods: Michael [https://remotehub.io/](https://remotehub.io/santa/c/g2xpnj6lq6)
 
 ### Holidays 
 
