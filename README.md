@@ -31,3 +31,7 @@
 ### Motoring
 
 * We Buy Any Car: Ben - £20 for you and £10 for me - [https://i.soreto.com/webuyanycar/o/N1QuNFqxu](https://i.soreto.com/webuyanycar/o/N1QuNFqxu)
+
+### Learning
+
+* 2 months free SkillShare: Michael https://skl.sh/2JOxajm
